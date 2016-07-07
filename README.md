@@ -4,4 +4,6 @@ Se volete organizzare il vostro <A HREF=http://www.nozzespeciali.it/>matrimonio<
 ## Aziende presenti sul portale
 Vi sono molte segnalazioni di aziende presenti sui portali che riguardano le nozze, di seguito proporremo descrizioni di alcune attività che si trovano all'interno dei maggiori contenitori di aziende di matrimoni. Queste possono essere suddivise in attività professionali di settore e location che offrono questo servizio professionale
 Seguirà un numero di esempi di descrizione in cui non verrà fatto nessun riferimento ad alcuna azienda per mantenere l'anonimato.
-## Aziende presenti sul portale
+## foto studio numero uno
+L'obbiettivo dichiarato di questo studio fotografico è di creare un ritratto degli attimi più sfuggevoli e incantevoli del matrimonio e facendo questo, realizzerà il vostro sogno. Si può essere professionisti e allo stesso tempo divertenti ed emozionare in modo piacevole, quindi le due cose non sono l'una il contrario dell'altra, anzi possono andare benissimo a braccetto insieme come nel caso di questo studio fotografico.<br>
+Le foto possono evocare diversi meccanismi nella mente di chi le ammira, questa equipe saprà fermare il tempo per voi e, catturando le giuste pennellate di luce, attingere da tutta la bellezza dei vari momenti riporandoli su pellicola digitale.
