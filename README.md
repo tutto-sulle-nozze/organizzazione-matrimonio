@@ -5,5 +5,5 @@ Se volete organizzare il vostro <A HREF=http://www.nozzespeciali.it/>matrimonio<
 Vi sono molte segnalazioni di aziende presenti sui portali che riguardano le nozze, di seguito proporremo descrizioni di alcune attività che si trovano all'interno dei maggiori contenitori di aziende di matrimoni. Queste possono essere suddivise in:
 - attività professionali di settore
 - location che offrono questo servizio professionale
-Seguirà un numero di esempi di descrizione in cui non verrà fatto nessun riferimento ad alcuna azienda per mantenere l'anonimato.
+Seguirà un numero di esempi di descrizione in cui non verrà fatto nessun riferimento ad alcuna azienda per mantenere l'anonimato.<br>
 ## Aziensge presenti sul portale
