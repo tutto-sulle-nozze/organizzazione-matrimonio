@@ -6,5 +6,5 @@ Vi sono molte segnalazioni di aziende presenti sui portali che riguardano le noz
 - attività professionali di settore
 - location che offrono questo servizio professionale
 Seguirà un numero di esempi di descrizione in cui non verrà fatto nessun riferimento ad alcuna azienda per mantenere l'anonimato.
-## Aziende presenti sul portale
+# Aziende presenti sul portale
 sdgsdgsdg
