@@ -1,2 +1,2 @@
-# Organizzazione delle nozze: le principali risorse presenti in Italia
+# Organizzazione delle nozze: risorse in Italia
 
