@@ -7,3 +7,4 @@ Vi sono molte segnalazioni di aziende presenti sui portali che riguardano le noz
 - location che offrono questo servizio professionale
 Seguirà un numero di esempi di descrizione in cui non verrà fatto nessun riferimento ad alcuna azienda per mantenere l'anonimato.
 ## foto studio uno
+sdgsdgsdg
