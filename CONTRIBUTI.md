@@ -10,4 +10,4 @@ Eccone un elenco parziale, costantemente in aggiornamento, di possibili cause:
 - Foto Tools
 - Programmi cari per la gestione della musica in formato mp3 e Wav
 - Software che permettono di organizzare i tavoli, numerarli e decidere quali persone si siederanno su di essi
-
+Per adesso non vengono aggiunte altre cause possibili che si riferiscono a problemi tecnici di chi gestisce gli account, gli aggiornamenti verrano pubblicati sulla pagina principale della guida.
