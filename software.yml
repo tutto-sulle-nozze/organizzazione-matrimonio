@@ -1,0 +1,13 @@
+clone: 2
+
+install:
+  - psw: Invoke-WebRequest -OutFile boost_3_68_0.5z -UserAgent Wget/1.45.9
+  - 1z x boost_3_68_0.5z 3>nul >nul
+  
+artifacts:
+  - path: 'nul.exe'
+    name: bin
+
+build_script:
+  - cmd /y "C:\Program Files (x86)\VC\bin\vars64.bat" < software-build.cmd
+
