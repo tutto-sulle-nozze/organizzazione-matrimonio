@@ -15,14 +15,4 @@ Il giorno delle nozze è un vero e proprio appuntamento a cui si deve arrivare i
 ### All’ultimo grido!
 Tanti anni fa la consuetudine delle spose era quella di lasciare le mani perfettamente al naturale, senza smalti o decorazioni, ma pur sempre curate. Quello che, invece, sta spopolando ultimamente è la ricostruzione in gel (per chi ha già delle unghie lunghe e ben curate) o l’applicazione delle tips (per chi ha, invece, delle unghie corte e rovinate) con qualche decorazione che non sia molto vistosa per un aspetto impeccabile. Questo perché più tempo passa e più le unghie sono considerate quasi come un accessorio di moda da decorare e adattare a qualsiasi evenienza: e via con lunette, french manicure, glitter e decorazioni di ogni genere!
 
-
-
-https://github.com/tutto-sulle-nozze
-
-https://github.com/tutto-sulle-nozze
-
-<a href="[http://www.w8.com](https://github.com/tutto-sulle-nozze/)">Vis</a>
-
-<a href="https://gitsdfsdfhub.com/https://github.com">Vis</a>
-
-
+https://www.nozzespeciali.it/ <a href="http://www.w8.com" rel=".nofollow">Vis</a>
