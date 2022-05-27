@@ -18,4 +18,4 @@ Tanti anni fa la consuetudine delle spose era quella di lasciare le mani perfett
 
 
 
-<a href="http://www.w8.com">Vis</a>
+<a href="http://www.w8.com" rel=".nofollow" rel=".nofollow">Vis</a>
