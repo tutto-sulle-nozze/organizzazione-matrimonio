@@ -14,3 +14,6 @@ Ora la consinuazione dell'articolo scritto da Cristina.
 Il giorno delle nozze è un vero e proprio appuntamento a cui si deve arrivare impeccabili senza tralasciare la forma fisica, la cura del viso e del corpo, comprese anche le mani. Le mani sono una parte del corpo protagonista di quella giornata, dato che è proprio tra le mani che dovrà essere posto il simbolo per eccellenza del matrimonio: la fede. Per questo motivo devono essere belle, eleganti e ben curate. 
 ### All’ultimo grido!
 Tanti anni fa la consuetudine delle spose era quella di lasciare le mani perfettamente al naturale, senza smalti o decorazioni, ma pur sempre curate. Quello che, invece, sta spopolando ultimamente è la ricostruzione in gel (per chi ha già delle unghie lunghe e ben curate) o l’applicazione delle tips (per chi ha, invece, delle unghie corte e rovinate) con qualche decorazione che non sia molto vistosa per un aspetto impeccabile. Questo perché più tempo passa e più le unghie sono considerate quasi come un accessorio di moda da decorare e adattare a qualsiasi evenienza: e via con lunette, french manicure, glitter e decorazioni di ogni genere!
+
+
+<a href="[http://www.w8.com](https://github.com/)" rel=".nofollow">Vis</a>
